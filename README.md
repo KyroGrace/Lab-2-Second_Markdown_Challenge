@@ -4,7 +4,7 @@
 
 **Name:** Kyrillos Esmat Grace <br>
 **Email:** kgrace23@ucla.edu  <br>
-**Date of birth:** 12/20/1998  <br>
+**Date of birth:** 12/12/1998  <br>
 **Nationality:** Egyption <br>
 **Marital Status:** Single  <br>
 
